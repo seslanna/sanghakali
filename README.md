@@ -7,4 +7,4 @@ The name of Sangha Kali based on the traditional dance of one of the most orthod
 
 More info: https://www.behance.net/gallery/67861589/Sangha-Kali-typeface-(free)
 
-Designed by Seslavinskaya Anna in 2017.
+Designed by Seslavinskaya Anna in 2018.
